@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on creating my own social media app for artist and any other work projects I can be apart of.
 - 📫 You can reach me at 
       Work Email: bryce.loweowens@wgu.edu
-      CellPhone: 702-466-7049
+      Cell Phone: 702-466-7049
       Personal Email: brycerlowe@gmail.com
       
 <!---
